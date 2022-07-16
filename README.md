@@ -1,0 +1,2 @@
+# RichardINC
+botlarımın hepsi
